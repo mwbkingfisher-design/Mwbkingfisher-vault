@@ -1,0 +1,26 @@
+{
+  "noteId": "b84e0677-5160-4f3c-83b4-446c294d042a",
+  "notePath": "Worlds/Pier - the detective/The mansion.md",
+  "currentBranch": "main",
+  "branches": {
+    "main": {
+      "versions": {
+        "20251231103554_1": {
+          "versionNumber": 1,
+          "timestamp": "2025-12-31T09:35:54.381Z",
+          "name": "Init draft",
+          "size": 17299,
+          "wordCount": 3009,
+          "wordCountWithMd": 3009,
+          "charCount": 16796,
+          "charCountWithMd": 16889,
+          "lineCount": 303,
+          "lineCountWithoutMd": 299
+        }
+      },
+      "totalVersions": 1
+    }
+  },
+  "createdAt": "2025-12-31T09:35:54.261Z",
+  "lastModified": "2025-12-31T09:36:00.689Z"
+}
