@@ -1,0 +1,24 @@
+- Scene 1
+	- Present AI log from searching a particular person
+	- Interrupt the log 
+	- Main character presents himself to the reader (breaking the 3rd wall)
+	- He has not much time so warns before using AI
+- Scene 2
+	- Fine morning, lazy one
+	- A bit worried about AI copyright and author’s rights issues
+	- Goin outside with a dog
+	- Forgot his phone
+	- Going to the outskirts → a field nearby
+	- Going back
+	- Everyone’s in rush running somewhere.
+- Scene 3
+	- Before entering the apartment he sees a drone.
+	- Drone stops before him halting him in place
+	- Telling that the AI is now ruling the world
+	- All the people are directed into isolated spaces (like arrest or prison)
+ - Scene 4
+	 - the drone is about to use a laser to force going with it
+	 - the dog recognizes his masters anxiety and jumps on drone destroying it
+	 - main character quickly runs to the apartment and barricade himself 
+	 - Every electric device, is now being chaotic and talks AI-ish
+	 - he unplugs

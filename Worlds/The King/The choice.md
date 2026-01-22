@@ -1,0 +1,1 @@
+King Gabriel looked through the crowd of his royal subjects
