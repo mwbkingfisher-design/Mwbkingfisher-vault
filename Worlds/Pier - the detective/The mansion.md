@@ -287,15 +287,25 @@ Before approaching the villa he set up a plan in his head. It should have been e
 
 He approached the security booth waiting for someone to stop him. 
 
+“Mister Pier. Good evening. Still something to check?” The guard waved at him.
 
+“Yes, one idea struck me in the office. Need to see if it’s true or not. I’ll inform you when I’m about to leave.”
 
-He had given back the keys to Jill, so he had to break into the apartment. Fortunately, he was passionate about breaking into anything. Most of his free time he spent on trying new approaches. The fancy device he discovered recently was electrical lockpick.
+“Sure thing! Let me know if you need anything.”
+
+It meant that Jill hadn’t informed security yet. That could happen any moment, so he needed to be fast. He passed by the smiling guard, smiling in exchange, and moved in a steady pace to the villa direction.
+
+The main wooden door were obstacle that he thought would be easiest to breach.
+
+He had given back the keys to Jill, so he had to find another way into the apartment. Fortunately, the fancy device he discovered recently was electric lock-pick.
 
 He touched the keyhole with it, and with a silent snap, the door unlocked.
 
-Nothing changed since yesterday. If Jill had something to hide, then that was suspicious. She should have thought of him going into the house again. Maybe she didn’t think someone would be brave enough to break into her villa.
+Nothing changed since yesterday. If Jill had something to hide, then that was suspicious. She should have thought of him going into the house again. Maybe Jill was so cocky to think that someone would be brave enough to break into her villa.
 
-Considering the value of the house and the property, Pier was surprised to break into it so easily. 
+With the value of the house and the property, Pier was surprised to break into it so easily. The electric lock-picks were a tool easy to get from every shop. 
+
+*Well… She has her own security after all.* He considered.
 
 That didn't bother him for too long. He moved to the couch where last time he found Jill's husband.
 
