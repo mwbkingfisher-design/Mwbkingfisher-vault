@@ -320,7 +320,9 @@ He put his ear to the door, and for a brief moment, he thought he heard muffled 
 
 An axe could be sharp enough to break through that door. He saw a shed on the way to the villa from the security both. Sheds usually have axe or sharp tools, so he headed that way. 
 
-“Hello, Mr Pier ”
+“Mr Pier? Are you there?” The guard looked for Pier.
+
+Jill must have informed him, and now he wanted to throw him out from the property. He needed to find a hide or he would get caught easily. A shed’s window was opened, and that was his chance.
 ## Break into the basement I
 
 # Discover
