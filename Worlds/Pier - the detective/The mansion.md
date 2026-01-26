@@ -305,22 +305,20 @@ Nothing changed since yesterday. If Jill had something to hide, then that was su
 
 With the value of the house and the property, Pier was surprised to break into it so easily. The electric lock-picks were a tool easy to get from every shop. 
 
-*Well… She has her own security after all.* He considered.
+*Well… She has her own security guards after all.* He considered. *Maybe she thought that another security measures would be extravagant.* 
 
-That didn't bother him for too long. He moved to the couch where last time he found Jill's husband.
+Pier grinned but didn't bother for too long about it. The couch where he found Jill's husband last time, was still there, unscathed. The ghost, like the last time, was floating above the couch like the day before.
 
-He saw the ghost floating over the couch like the day before.
-
-“Let’s find out what you want to show us.”
+“Let’s find out what you want to show us.” he said that out loud, and as expected ghost didn’t even notice him.
 ## Ghost once again
 
 Pier carefully followed cold air that trailed off the ghost. Like before, it moved through the corridor straight for its destination—the basement. 
 
-The only problem was that the ghost was translucent and penetrated the door. Pier, however, couldn't get there. No matter how much he kicked or punched, his efforts left only faint echoes in the corridor. 
+The only problem was that the ghost was translucent and penetrated the door. Pier, however, was stopped by a hard wood. No matter how much he pressed or punched, his efforts left only faint echoes in the corridor. 
 
-He put his ear to the wooden door, and for a brief moment, he thought he heard muffled sounds. 
+He put his ear to the door, and for a brief moment, he thought he heard muffled sounds. He had never met a speaking ghost, so the source of sounds was something different. Jill perhaps?
 
-An axe could be something sharp enough to break into the basement. On the way to the villa Pier saw a she. The axe could have been there so he headed that way. 
+An axe could be sharp enough to break through that door. He saw a shed on the way to the villa from the security both. Sheds usually have axe or sharp tools, so he headed that way. 
 
 “Hello, Mr Pier ”
 ## Break into the basement I
