@@ -322,7 +322,9 @@ An axe could be sharp enough to break through that door. He saw a shed on the wa
 
 “Mr Pier? Are you there?” The guard looked for Pier.
 
-Jill must have informed him, and now he wanted to throw him out from the property. He needed to find a hide or he would get caught easily. A shed’s window was opened, and that was his chance.
+Jill must have informed him, and now he wanted to throw him out from the property. He needed to find a hiding place or he would be caught easily. An open shed window glared at him, and that was his chance. 
+
+He tried to run to it, but 
 ## Break into the basement I
 
 # Discover
