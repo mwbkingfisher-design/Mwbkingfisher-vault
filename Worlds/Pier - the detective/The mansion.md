@@ -1,8 +1,6 @@
 ---
 vc-id: b84e0677-5160-4f3c-83b4-446c294d042a
 ---
-# Lady
-
 “Heh, you must be really desperate to come to me.”
 
 Pier was looking through the window of his apartment.
@@ -49,15 +47,15 @@ She was shocked, as no Google information prepared her for that answer.
 
 “I can help you, but for now, you need to leave your apartment.”
 
-# The meeting
+***
 
 Another day, another lady to be saved. He did hate Mondays.
 
 But he agreed to the case, so he was looking through the documents he had received from his client.
 
-*They always bring me some useless things.* With a thud, he threw the file on the table. That was an issue with paranormal cases. Clients showed him only blurry images and called it ‘a shadow’ or ‘a paranormal,’ when usually it was just a play of light and shadow captured. 
+They always bring me some useless things. With a thud, he threw the file on the table. That was an issue with paranormal cases. Clients showed him only blurry images and called it ‘a shadow’ or ‘a paranormal,’ when usually it was just a play of light and shadow captured.
 
-He always worked alone. He’d tried to work with someone a few times, but most of the time, it was a disaster. His unique ways of leading investigations bothered a lot of potential co-workers. 
+He always worked alone. He’d tried to work with someone a few times, but most of the time, it was a disaster. His unique ways of leading investigations bothered a lot of potential co-workers.
 
 A kettle whistled, but Pier was lost in his thoughts. This type of ghost usually sought revenge. Even if the clients said that they had a life full of joy and happiness, there was always a thorn stuck deep in the heart. A thing that displeased the dead. It could have been anything: a hidden affair, an unfulfilled promise, or even something as stupid as the wrong decision from the past. The ghost didn't know what was keeping him awake, feeding him with wrath.
 
@@ -73,15 +71,15 @@ It occurred to Pier that he'd never asked about her name.
 
 “My name is Jill. Have you investigated my case? The ghost. Can my husband leave in peace?”
 
-Telling them that the files were entirely useless had never been easy for Pier. All the carefully gathered information pieces of the lost ones went straight to the garbage. 
+Telling them that the files were entirely useless had never been easy for Pier. All the carefully gathered information pieces of the lost ones went straight to the garbage.
 
 “Hopefully, he can. We need to talk first,” said Pier.
 
-It was better to contact a client face-to-face. The materials and an investigation scene have only scraps of information necessary to exterminate a ghost. 
+It was better to contact a client face-to-face. The materials and an investigation scene have only scraps of information necessary to exterminate a ghost.
 
 They met at the cafe, the closest one to the investigation scene, a young widow's house. She was wearing the red dress now, drinking something from a tall glass. She was talking with someone on the mobile phone when he approached her.
 
-“Need to go. Please do it, as discussed.” She hung up and invited Pier to sit on an empty chair. 
+“Need to go. Please do it, as discussed.” She hung up and invited Pier to sit on an empty chair.
 
 “You want something?”
 
@@ -89,11 +87,11 @@ They met at the cafe, the closest one to the investigation scene, a young widow'
 
 “Not really, business as usual. My husband had left me with a lot of obligations.”
 
-“Oh, I see. Official matters can ruin the day.” 
+“Oh, I see. Official matters can ruin the day.”
 
 Pier took out his note. He liked to have everything written, so that he could glance at it while thinking.
 
-“Jill, we both want to drive that ghost out of your mansion. But without thorough investigation, it’s bound to fail.” 
+“Jill, we both want to drive that ghost out of your mansion. But without thorough investigation, it’s bound to fail.”
 
 “So, Mr. Pier. What do you want to know?”
 
@@ -111,11 +109,11 @@ Pier wrote everything carefully in his note. Every stutter, every face twitch, e
 
 “No cheating, domestic violence? Psychologic violence?”
 
-On the last question Jill's brow twitched. It was a barely visible gesture, but Pier wrote that in his note anyway. 
+On the last question Jill's brow twitched. It was a barely visible gesture, but Pier wrote that in his note anyway.
 
-“No. Nothing of that sort. Never." 
+“No. Nothing of that sort. Never."
 
-“Alright, do you have kids?" 
+“Alright, do you have kids?"
 
 Next twitch.
 
@@ -127,9 +125,9 @@ He needed to admit to himself that his experience in paranormal cases was more t
 
 Jill felt silence for a moment. She drank a few large sips from her drink. Pier saw that it wasn't easy for her.
 
-“We thought about kids," she finally broke the silence, "and argued a lot on that. I wanted to have kids, but he had always said that he wouldn't have time for them. That was true, because he was on business trips every two or three weeks." 
+“We thought about kids," she finally broke the silence, "and argued a lot on that. I wanted to have kids, but he had always said that he wouldn't have time for them. That was true, because he was on business trips every two or three weeks."
 
-Her face saddened and a trace of tears appeared in her eyes. 
+Her face saddened and a trace of tears appeared in her eyes.
 
 "I wanted them so badly. Really, detective. I couldn't live without them, even without knowing them. Yet he—he didn't change his mind. That's what we had argued about the most. Rarely, he had gone on a trip not angry.”
 
@@ -145,12 +143,13 @@ She hesitated. Pier saw on her face that she really didn’t want to go. Shadows
 
 “Thank you.”
 
-# Apartment 
-Pier had never been on The Sunrise street. Many of the most prestigious apartments and villas were located there. He stopped his car in front of one of them. 
+***
 
-*I would love to live in one of these.* And for that he needed a lot of money. With his current job, position and wages, it would take him lifetimes to have enough money to buy one. Detectives with licenses were paid much, but the specialization in which he was an expert placed him at the end of the list. The news didn’t write about him, because his cases were almost always supernatural. That was not something easily sellable. Most people thought that’s some weird clickbait news, instead of a real thing.
+Pier had never been on The Sunrise street. Many of the most prestigious apartments and villas were located there. He stopped his car in front of one of them.
 
-He could see it from behind the fence. The mansion was enormous. Pier couldn’t believe that only one family lived there. And what’s more, without any kids. 
+I would love to live in one of these. And for that he needed a lot of money. With his current job, position and wages, it would take him lifetimes to have enough money to buy one. Detectives with licenses were paid much, but the specialization in which he was an expert placed him at the end of the list. The news didn’t write about him, because his cases were almost always supernatural. That was not something easily sellable. Most people thought that’s some weird clickbait news, instead of a real thing.
+
+He could see it from behind the fence. The mansion was enormous. Pier couldn’t believe that only one family lived there. And what’s more, without any kids.
 
 It was guarded by a private security company. A wooden booth stood next to the gate, and the guard stopped him as Pier approached.
 
@@ -176,44 +175,45 @@ The guard clicked a button to open the gate.
 
 “What can you say about Miss Jill and her deceased husband?“
 
-”They were happy as anyone would be with so much money.” The guard smiled wide. 
+”They were happy as anyone would be with so much money.” The guard smiled wide.
 
 “True, True, but Miss Jill told me that they’d fought over having children. Do you know anything about it?”
 
 “Them? I never saw them fighting at all… not that they allowed anyone near, including me.”
 
-“What do you mean?" 
+“What do you mean?"
 
 “They hardly invited any friends—I don't think they’d had any.”
 
-That confused Pier. Miss Jill was an extroverted person, so he just couldn't believe that a woman with such a personality didn't have a lot of friends coming over. 
+That confused Pier. Miss Jill was an extroverted person, so he just couldn't believe that a woman with such a personality didn't have a lot of friends coming over.
 
 “Thank you. I’ll go take a look at the mansion then.”
 
 The residence was an English-style villa with two residential wings. A huge door stood at the end of marbled stairs. A tiny key that he held in his hands looked peculiar compared to what it opened. The door opened with a loud squeak that made him shiver. He chuckled. Even after a long time in that paranormal business, he could still be surprised by such stupid things.
 
-The amount of wood overwhelmed him for a brief moment. He had thought that his office desk was too much oak, but this—was just ridiculous. Stairs, walls, floor, roof, everything was pure wood. He couldn’t even imagine what a spark would do here. 
+The amount of wood overwhelmed him for a brief moment. He had thought that his office desk was too much oak, but this—was just ridiculous. Stairs, walls, floor, roof, everything was pure wood. He couldn’t even imagine what a spark would do here.
 
-Except for wood, only one thing drew his attention. Above the fireplace on the mantelpiece stood a lone frame with a photo. Happy couple, smiling. He—in the black velvet suit, and her—a blue dress. 
+Except for wood, only one thing drew his attention. Above the fireplace on the mantelpiece stood a lone frame with a photo. Happy couple, smiling. He—in the black velvet suit, and her—a blue dress.
 
-The kitchen was clean and he could scarcely believe that someone ever cooked here. If only his office had looked like this, he would be delighted. 
+The kitchen was clean and he could scarcely believe that someone ever cooked here. If only his office had looked like this, he would be delighted.
 
 He went upstairs to check bedrooms, but similarly to the kitchen, everything was clean as anew. One of the bedrooms had a huge balcony with a table and chairs. That was much better than his dusty window in the office.
 
 Then something caught his eyes. A red roof was glooming from the courtyard. The red roof of the slide. Children slide. Pier rubbed his eyes. But still—The slide was there.
 
-# Encounter
-He rushed the stairs hopping two steps at once. When he was about to leave the house, he heard wailing. Pier stopped in place to find where that noise was coming from. The ghost was the main reason he was there, and from his experience, looking and being near the shadow helped figure out how, when, and why.  
+***
+
+He rushed the stairs hopping two steps at once. When he was about to leave the house, he heard wailing. Pier stopped in place to find where that noise was coming from. The ghost was the main reason he was there, and from his experience, looking and being near the shadow helped figure out how, when, and why.
 
 The sound was coming from the living room, so he headed there. The ghost was hovering above the coach. It was just like Pier remembered similar ghosts. Blurry, distorted image of some person—most likely Jill’s dead husband.
 
-He knew that talking to it was useless. They couldn't speak, so the only way to tell anything valuable was by observing its behavior. Pier sat on the couch next to the ghost and waited. 
+He knew that talking to it was useless. They couldn't speak, so the only way to tell anything valuable was by observing its behavior. Pier sat on the couch next to the ghost and waited.
 
 It had been at least half an hour before it moved. Every meter was a distorted, chaotic sway. Pier followed it closely not to lose any movement.
 
 The shade moved to the TV, and seemed to watch it for a bit. Then flew to the kitchen to wash phantom dishes. After that, it stood in the entrance hall looking around. Finally, the ghost gazed on the basement door and disappeared behind them shortly after.
 
-Pier ran to the door to follow the ghost, but the door was closed. A simple, standard entrance into the basement. He had multiple ways to break in there, but with a hesitation he decided against it. Confrontation with Jill about it could give him some answers. He heard faint voices coming from below. 
+Pier ran to the door to follow the ghost, but the door was closed. A simple, standard entrance into the basement. He had multiple ways to break in there, but with a hesitation he decided against it. Confrontation with Jill about it could give him some answers. He heard faint voices coming from below.
 
 He backed off from the door and the house. The slide, or even more, the playground was still where Pier saw it. Such constructions could have been hallucinations connected to the ghost itself. But this was something solid, real. The slide and the swing looked used recently.
 
@@ -229,16 +229,17 @@ Deep in thoughts, Pier headed towards the gate.
 
 “Playground? No way, I’ve never heard of that.”
 
-That piqued Pier’s interest. There was no way that such a big construction could be installed without security’s notice. Even with a tall fence. 
+That piqued Pier’s interest. There was no way that such a big construction could be installed without security’s notice. Even with a tall fence.
 
 “Okay. Thanks,” said Pier and strode off to his car.
 
-# Next meeting
- “This doesn’t make sense, Jill.” Pier leaned toward her to see her reaction.
+***
+
+“This doesn’t make sense, Jill.” Pier leaned toward her to see her reaction.
 
 They were sitting in the same cafe as before. The beverages were also the same. Not a lot of people sat outside on rainy days. For more privacy, they decided to sit there. Umbrellas were efficient rain protectors.
 
-Again, as before, Pier scribbled everything in his notebook. Connecting the dots was easier when you had documents full of evidences.
+Again, as before, Pier scribbled everything in his notebook. Connecting the dots was easier when you had documents full of evidence.
 
 Jill backed off a bit and said hesitantly. “I wanted that slide. I needed at least a taste of how it would be to have a child. Mark couldn’t believe that feeling, and he laughed at me all the time. I hated that—we argued a lot on that.”
 
@@ -252,7 +253,7 @@ Pier saw that this wasn’t a conversation she had been prepared for. The flinch
 
 “I. Don't. Want. To. Talk. About. It.” She pronounced every word clearly, loudly, and separately.
 
-*So maybe that basement is something more.* He scribbled that twice in his notes, as something even more important.
+So maybe that basement is something more. He scribbled that twice in his notes, as something even more important.
 
 “Miss Jill… I’m doing this only to solve the mystery of your husband's ghost. You need to be honest with me. Otherwise, we can end our investigation here and now.”
 
@@ -266,26 +267,27 @@ He stood up, gave Jill her keys, and headed for the exit.
 
 With a firm grip, he took it and ran out of the cafe.
 
-# Undercover
-## Decision
-He was moving in circles deep in thought. The tracks on the center of his office room got more prominent with every step. The most important rule of his job said that if the client wanted to close the case—he closed it without any further investigation. 
+***
+
+He was moving in circles deep in thought. The tracks on the center of his office room got more prominent with every step. The most important rule of his job said that if the client wanted to close the case—he closed it without any further investigation.
 
 There was something not right about this case and Pier couldn’t let it go so easily.
 
-The way Jill had behaved seemed suspicious to him. 
-People tend to hide something they don't want to expose. He had worked with people for long enough to know their secrets. Jill was anxious about him going to that basement; the things there could expose her secret. 
+The way Jill had behaved seemed suspicious to him. People tend to hide something they don't want to expose. He had worked with people for long enough to know their secrets. Jill was anxious about him going to that basement; the things there could expose her secret.
 
-He grabbed the keys and rushed out of his office. It wasn't a rushe hour, but the traffic was still huge. As he stood in the traffic jam, one of his favorite songs came on the radio: ‘Don't Stop Me Now.’
+He grabbed the keys and rushed out of his office. It wasn't rush hour, but the traffic was still huge. As he stood in the traffic jam, one of his favorite songs came on the radio: ‘Don't Stop Me Now.’
 
-Nothing could stop him, not before he checked what was inside that mysterious basement. 
+Nothing could stop him, not before he checked what was inside that mysterious basement.
 
-‘Tonight, I'm gonna have myself.’ He couldn't wait for the fun he was about to have. 
+‘Tonight, I'm gonna have myself.’ He couldn't wait for the fun he was about to have.
 
-When the song finished, he was halfway to the apartment. For the rest, he turned off the radio. He didn't want to change the mood. 
-## Breaking into the apartment
+When the song finished, he was halfway to the apartment. For the rest, he turned off the radio. He didn't want to change the mood.
+
+***
+
 Before approaching the villa he set up a plan in his head. It should have been easy as long as Jill didn't inform the security about the abandoned deal.
 
-He approached the security booth waiting for someone to stop him. 
+He approached the security booth waiting for someone to stop him.
 
 “Mister Pier. Good evening. Still something to check?” The guard waved at him.
 
@@ -293,46 +295,75 @@ He approached the security booth waiting for someone to stop him.
 
 “Sure thing! Let me know if you need anything.”
 
-It meant that Jill hadn’t informed security yet. That could happen any moment, so he needed to be fast. He passed by the smiling guard, smiling in exchange, and moved in a steady pace to the villa direction.
+It meant that Jill hadn’t informed security yet. That could happen any moment, so he needed to be fast. He passed by the smiling guard, smiling in exchange, and moved at a steady pace in the direction of the villa.
 
-The main wooden door were obstacle that he thought would be easiest to breach.
+The main wooden doors were obstacles that he thought would be easiest to breach.
 
-He had given back the keys to Jill, so he had to find another way into the apartment. Fortunately, the fancy device he discovered recently was electric lock-pick.
+He had given back the keys to Jill, so he had to find another way into the apartment. Fortunately, the fancy device he discovered recently was an electric lock pick.
 
 He touched the keyhole with it, and with a silent snap, the door unlocked.
 
 Nothing changed since yesterday. If Jill had something to hide, then that was suspicious. She should have thought of him going into the house again. Maybe Jill was so cocky to think that someone would be brave enough to break into her villa.
 
-With the value of the house and the property, Pier was surprised to break into it so easily. The electric lock-picks were a tool easy to get from every shop. 
+With the value of the house and the property, Pier was surprised to break into it so easily. The electric lockpicks were a tool easy to get from every shop.
 
-*Well… She has her own security guards after all.* He considered. *Maybe she thought that another security measures would be extravagant.* 
+Well… She has her own security guards after all. He considered. Maybe she thought that other security measures would be extravagant.
 
-Pier grinned but didn't bother for too long about it. The couch where he found Jill's husband last time, was still there, unscathed. The ghost, like the last time, was floating above the couch like the day before.
+Pier grinned but didn't bother for too long about it. The couch where he found Jill's husband last time was still there, unscathed. The ghost, like the last time, was floating above the couch like the day before.
 
-“Let’s find out what you want to show us.” he said that out loud, and as expected ghost didn’t even notice him.
-## Ghost once again
+“Let’s find out what you want to show us,” he said out loud, and as expected, the ghost didn’t even notice him.
 
-Pier carefully followed cold air that trailed off the ghost. Like before, it moved through the corridor straight for its destination—the basement. 
+***
 
-The only problem was that the ghost was translucent and penetrated the door. Pier, however, was stopped by a hard wood. No matter how much he pressed or punched, his efforts left only faint echoes in the corridor. 
+Pier carefully followed cold air that trailed off the ghost. Like before, it moved through the corridor straight for its destination—the basement.
 
-He put his ear to the door, and for a brief moment, he thought he heard muffled sounds. He had never met a speaking ghost, so the source of sounds was something different. Jill perhaps?
+The only problem was that the ghost was translucent and penetrated the door. Pier, however, was stopped by a hardwood. No matter how much he pressed or punched, his efforts left only faint echoes in the corridor.
 
-An axe could be sharp enough to break through that door. He saw a shed on the way to the villa from the security both. Sheds usually have axe or sharp tools, so he headed that way. 
+He put his ear to the door, and for a brief moment, he thought he heard muffled sounds. He had never met a speaking ghost, so the source of the sounds was something different. Jill, perhaps?
 
-“Mr Pier? Are you there?” The guard looked for Pier.
+An axe could be sharp enough to break through that door. He saw a shed on the way to the villa from the security booth. Sheds usually have axes or sharp tools, so he headed that way.
 
-Jill must have informed him, and now he wanted to throw him out from the property. He needed to find a hiding place or he would be caught easily. An open shed window glared at him, and that was his chance. 
+“Mr. Pier? Are you there?” The guard looked for Pier.
 
-He tried to run to it, but 
-## Break into the basement I
+Jill must have informed him, and now he wanted to throw him out from the property. He needed to find a hiding place, or he would be caught easily. An open shed window glared at him, and that was his chance.
 
-# Discover
-## Awful truth
-## The reason
+A motion on the playground distracted the guard, who decided to go check there. Pier sneaked up to the window. He barely fit through it. Good that I haven't eaten yet. He grinned at that.
 
-# Aftermath
-## Police
-## The story
-##  Lady imprison
-## Free ghost
+The shed was dark and full of things that Pier stumbled over. He couldn’t find any light switch, so he took out his phone and turned on the flashlight. What he saw in the shed made his suspicions not suspicions anymore. On every shelf—and he saw a lot of shelves—there were kids' clothes everywhere, starting with little baby shirts and cute shoes, finishing with something that even a teenager could wear.
+
+Pier froze for a few good moments. Tiny and not only clothes took him aback. Why would there be clothes here? Jill said that they had wanted kids, but they never had them in the end. There was a chance that Pier coincidentally found out Jill’s little secret and the reason why she didn’t want him to continue the investigation.
+
+He wanted to come here later, but for now he needed to get into that basement. The axe was buried in between the clothes, and as he reached for it, he saw one more thing that proved his theories. A photo of a family. It was apparently Jill’s family, except her husband was missing. She, on the other hand, was standing near the playground with a bunch of kids, ranging from a baby held in her arms to a teenage girl standing next to Jill.
+
+Something was off with that playground behind them. One of the rocking horses, which actually was a duck, lay on its side. He was almost sure that when he had seen that place, the hors–duck had been standing in the normal position.
+
+The axe could have been helpful later, but for now he put it back among the clothes. He got out of the shed through the window, as he didn’t want to leave any traces behind, and headed straight to the playground. The security guard was nowhere to be seen—probably back in the booth after seeing no traces of Pier. It wasn’t far away from the playground, so his run was as soft as he could manage it to be. He was on track on something mysterious, and he didn’t want to be thrown out. His self-consciousness would let him go if he did.
+
+“No, Miss, he is not here anymore. Maybe he couldn’t get into the house and left the property… No, you know that CCTV cameras are down. I want to get them fixed but never have the time.”
+
+The guard hung up, but Pier didn’t hear any commotion coming from the booth. After a while, the snores reached his ears. That was his moment, so with the lightest steps he could muster, he headed for the playground and the suspicious duck.
+
+The duck wasn’t particularly interesting. He hadn’t been on playgrounds a lot, but he had seen much prettier ducks. That one also had a weird crevice in the spring. In the photo, the duck had been broken in half in that place.
+
+  
+
+Break into the basement I
+
+Discover
+
+Awful truth
+
+The reason
+
+Aftermath
+
+Police
+
+The story
+
+Lady imprison
+
+Free ghost
+
+  
+**
