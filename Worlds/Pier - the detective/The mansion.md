@@ -345,7 +345,7 @@ The guard hung up, but Pier didn’t hear any commotion coming from the booth. A
 
 The duck wasn’t particularly interesting. He hadn’t been on playgrounds a lot, but he had seen much prettier ducks. That one also had a weird crevice in the spring. In the photo, the duck had been broken in half in that place. 
 
-He tried to break the duck in half, but it resisted. Pier started looking around the playground for some switch or other hidden handle. Such mechanisms are always controllable by items nearby.
+He tried to break the duck in half, but it resisted. Pier started looking around the playground for some switch, because such mechanisms had always a handle nearby.
 
   
 
