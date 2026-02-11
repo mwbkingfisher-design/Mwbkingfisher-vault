@@ -347,6 +347,10 @@ The duck wasn’t particularly interesting. He hadn’t been on playgrounds a lo
 
 He tried to break the duck in half, but it resisted. Pier started looking around the playground for some switch, because such mechanisms had always a handle nearby.
 
+The slide-house was prominent on the photo, so he headed that way first.  It was normal basic house with a slide. The worn red roof loomed over Pier head, and slide metal tube encouraged to go down of it. Yet there was nothing there that caught him eye. The swing wasn't interesting at all. One had railings and the second one was for older kids.
+
+Pier couldn't find anything, so he sat on the swing demotivated. Yes! Sitting! He stood up and straddled the duck. With a loud clang, the duck broke in half, dismounting him.
+
   
 
 Break into the basement I
