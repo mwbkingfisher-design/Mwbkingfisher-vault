@@ -343,7 +343,9 @@ The axe could have been helpful later, but for now he put it back among the clot
 
 The guard hung up, but Pier didn’t hear any commotion coming from the booth. After a while, the snores reached his ears. That was his moment, so with the lightest steps he could muster, he headed for the playground and the suspicious duck.
 
-The duck wasn’t particularly interesting. He hadn’t been on playgrounds a lot, but he had seen much prettier ducks. That one also had a weird crevice in the spring. In the photo, the duck had been broken in half in that place.
+The duck wasn’t particularly interesting. He hadn’t been on playgrounds a lot, but he had seen much prettier ducks. That one also had a weird crevice in the spring. In the photo, the duck had been broken in half in that place. 
+
+He tried to break the duck in half, but it resisted. Pier started looking around the playground for some switch or other hidden handle. Such mechanisms are always controllable by items nearby.
 
   
 
