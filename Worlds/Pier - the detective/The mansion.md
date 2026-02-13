@@ -359,7 +359,11 @@ Still, having in my mind that the guard still had been sleeping, he quietly rush
 
 The sight he saw upon entering wasn't the one he'd expected. Instead of dark, humid place, he saw bright, hospital lights and he felt fresh air coming from the basement. A laugh was coming from the inside. It was not one laugh; Pier heard two or even more.
 
-Carefully, Pier approached steps. He needed to admit that now the perspective was scarier than if someone had been kept in captivity or dead.
+Carefully, Pier approached steps. He needed to admit that now the perspective was scarier than if someone had been kept in captivity or dead. Laughing wasn't something you could develop when locked in the basement, unless the mind is already boggled.
+
+The basement was arranged as perfectly fine hotel corridor with multiple rooms on each side.
+
+"Mom?" The voice reached him. Its source was in one of opened rooms
 
   
 
