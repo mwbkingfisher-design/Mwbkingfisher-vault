@@ -363,8 +363,27 @@ Carefully, Pier approached steps. He needed to admit that now the perspective wa
 
 The basement was arranged as perfectly fine hotel corridor with multiple rooms on each side.
 
-"Mom?" The voice reached him. Its source was in one of opened rooms
+“Mom?” The voice reached him from one of the opened rooms. 
 
+The girl's head peeked out of the room.
+
+“Hi, my name is Pier, and you?” he tried to gently start the conversation.
+
+“I’m Julianne, mum doesn’t let me speak to strangers. But—” she hesitated, “—you are the first stranger I’ve ever seen here.”
+
+“Are you alright?”
+
+“Yes, my siblings and I have got dinner not long ago. You wanna join?”
+
+“I’m not hungry, I ate an hour ago.”
+
+The girl, although she was a teenager, had a mind of a 4-year-old kid. They seemed to be treated well, but he needed to call help either case, for the kids' sake.
+
+He ran up the stairs only to see that door had closed again. He’d started punching the solid wood, but for no use. The heavy entrance hadn’t even budge.
+
+“I tried that. A lot.” A mature voice came from the foray. “I’m Kate, and you Mister Pier, what are you doing here. She doesn’t let anybody here.”
+
+He assumed that this one was the teenager from the photo, but much more mature. How many years must have passed since that photo? Pier twitched on that thought, but answered Kate.
   
 
 Break into the basement I
