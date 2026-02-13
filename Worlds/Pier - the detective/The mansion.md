@@ -351,6 +351,16 @@ The slide-house was prominent on the photo, so he headed that way first.  It was
 
 Pier couldn't find anything, so he sat on the swing demotivated. Yes! Sitting! He stood up and straddled the duck. With a loud clang, the duck broke in half, dismounting him.
 
+Pier looked around, but nothing had changed. He took a step and he almost tripped. One of the bricks in the pavement bulged up a bit.
+
+The brick was easy to remove, and underneath Pier found a cable which led in the villa direction.
+
+Still, having in my mind that the guard still had been sleeping, he quietly rushed towards the basement door which, he was almost sure about it, had opened finally. 
+
+The sight he saw upon entering wasn't the one he'd expected. Instead of dark, humid place, he saw bright, hospital lights and he felt fresh air coming from the basement. A laugh was coming from the inside. It was not one laugh; Pier heard two or even more.
+
+Carefully, Pier approached steps. He needed to admit that now the perspective was scarier than if someone had been kept in captivity or dead.
+
   
 
 Break into the basement I
