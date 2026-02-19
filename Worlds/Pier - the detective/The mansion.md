@@ -384,25 +384,18 @@ He ran up the stairs only to see that door had closed again. He’d started punc
 “I tried that. A lot.” A mature voice came from the foray. “I’m Kate, and you Mister Pier, what are you doing here. She doesn’t let anybody here.”
 
 He assumed that this one was the teenager from the photo, but much more mature. How many years must have passed since that photo? Pier twitched on that thought, but answered Kate.
-  
 
-Break into the basement I
+"She— you must mean Jill, right?”
 
-Discover
+“Jill…” she pronounced the name slowly as if she tasted it in her mouth. “So that's her real name.”
 
-Awful truth
+“You have much different attitude than your sister.” Pier noticed. 
 
-The reason
+“She is not my real sister— but yea, we differ.  A lot. I was a teenager when she took us. She was just a child, that's why she's more passionate about her.”
 
-Aftermath
+"Why didn't you just run away?”
 
-Police
-
-The story
-
-Lady imprison
-
-Free ghost
+“She's not my sister, but I still care about her. We are like family here, you know.” Her face went slack, and she added, “she threatened me, that if I—we run away, she would find us and make us remember.”
 
   
 **
