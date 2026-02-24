@@ -397,5 +397,24 @@ He assumed that this one was the teenager from the photo, but much more mature. 
 
 “She's not my sister, but I still care about her. We are like family here, you know.” Her face went slack, and she added, “she threatened me, that if I—we run away, she would find us and make us remember.”
 
+“You could have informed the police.”
+
+“I haven't thought of that,” she said in a lowered voice. 
+
+“I see, it makes sense. I mean you were locked here for years.”
+
+“And now… you're locked here as well,” she said and sat on the stair.
+
+“Truth, but it's not something permanent.”
+
+"What do you mean?”
+
+Pier started touching the wall near the door, looking for something. He was knocking near the handle when an empty sound echoed in the hallway. 
+
+He turned to Kate with cool expression. "If there is a way in, there needs to be a way out.”
+
+
+
+
   
 **
