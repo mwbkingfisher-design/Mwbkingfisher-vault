@@ -413,8 +413,37 @@ Pier started touching the wall near the door, looking for something. He was knoc
 
 He turned to Kate with cool expression. "If there is a way in, there needs to be a way out.”
 
+“Did you find anything?” A hint of Hope sparked in her voice.
 
+Pier didn't listen to her. He was knocking the wall in the place where an empty sound resounded.
 
+The narrow path lead to Julianne's room.
 
-  
-**
+“Hey, may I come in?” he asked. 
+
+“Sure, you want to play some games?”
+
+“Of course, but let me first check something sweetie.”
+
+At the side of the wall there was a shelf where Julianne stored books and a few gadgets. The duck standing next to the photo looked exactly the same as the one on the playground.
+
+Pier touched the duck and tried to break it to the his hand. The toy didn't even budge.
+
+“It doesn't work like that,” said Julianne.
+
+“What do you mean?”
+
+“ It's a gift from Jill. We have a tradition that when she is about to leave, she asks me to do something.” After saying that Julianne came back to play with her dollhouse.
+
+“Alright, what is that you do Julianne?” asked Pier.
+
+“Mum told me to not show that to anyone.”
+
+Pier was examining the toy, but nothing come to his mind. On the playground the duck broke only after he sat on it. He tried to put a weight on the duck saddle with his fingers, but nothing happened.
+
+“Not like this,” said Julianne who watched Pier since he had started to touch her toy.
+
+“So—can you show me what should I do?”
+
+“No sorry, I can’t.”
+
