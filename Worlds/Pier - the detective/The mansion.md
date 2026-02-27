@@ -1,5 +1,11 @@
 ---
 vc-id: b84e0677-5160-4f3c-83b4-446c294d042a
+longform:
+  format: scenes
+  sceneFolder: /
+  scenes:
+    - Lady
+  ignoredFiles: []
 ---
 “Heh, you must be really desperate to come to me.”
 
@@ -425,7 +431,7 @@ The narrow path lead to Julianne's room.
 
 “Of course, but let me first check something sweetie.”
 
-At the side of the wall there was a shelf where Julianne stored books and a few gadgets. The duck standing next to the photo looked exactly the same as the one on the playground.
+At the side of the wall there was a shelf where Julianne stored books and gadgets. The duck standing next to the photo looked exactly the same as the one on the playground.
 
 Pier touched the duck and tried to break it to the his hand. The toy didn't even budge.
 
@@ -446,4 +452,25 @@ Pier was examining the toy, but nothing come to his mind. On the playground the 
 “So—can you show me what should I do?”
 
 “No sorry, I can’t.”
+
+The duck was attached to a shelf permanently, so there was no option of checking its insides. The wire was hidden within the shelf itself.
+
+Pier left the room and gestured to Kate to follow him.
+
+“Do you think you could talk to her and convince her to help us?”
+
+“I can try, but she listens to Jill first. Only then—sometimes—she listens to us.”
+
+Kate took something wrapped in a paper bag from the third room, which Pier didn’t have time to investigate yet.
+
+“Juls, you know what I have here?”
+
+Julianne nodded vigorously and begged, “Yes, yes, please give me a cruncher please.”
+
+“A cruncher?” The curiosity took over Pier.
+
+“Will tell you later.” promised Kate. 
+
+"I don't knew Katie. m
+
 
