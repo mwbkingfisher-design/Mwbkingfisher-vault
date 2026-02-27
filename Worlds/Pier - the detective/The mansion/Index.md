@@ -6,5 +6,10 @@ longform:
   sceneFolder: /
   scenes:
     - Lady
+    - The meeting
+    - Villa
+    - Ghost
+    - A
+    - Basement
   ignoredFiles: []
 ---
