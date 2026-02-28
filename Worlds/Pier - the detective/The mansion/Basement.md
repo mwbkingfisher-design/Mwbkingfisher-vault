@@ -150,3 +150,13 @@ Julianne nodded vigorously and begged, “Yes, yes, please give me a cruncher pl
 
 Kate turned to Julianne and said. “This is important. I'll give you one if you promise to help.”
 
+“Can I have two?” she asked with a voice full of hope.
+
+“You know what? You can have even three if you show this to us!”
+
+Julianne took a small doll standing on another shelf, and saddled it on the duck. The moment she placed it there, the toy broke in half mirroring the one on the playground. They heard noise of the door coming from the hallway.
+
+“It worked!” said Kate.
+
+“Yes. Let’s go to freedom!” said Pier and gestured Julianne and Kate to the stars.
+
