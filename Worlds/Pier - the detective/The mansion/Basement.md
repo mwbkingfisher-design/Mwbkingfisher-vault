@@ -148,4 +148,5 @@ Julianne nodded vigorously and begged, “Yes, yes, please give me a cruncher pl
 
 “Will tell you later.” promised Kate. 
 
-"I don't knew Katie. m
+Kate turned to Julianne and said. “This is important. I'll give you one if you promise to help.”
+
