@@ -160,3 +160,14 @@ Julianne took a small doll standing on another shelf, and saddled it on the duck
 
 “Yes. Let’s go to freedom!” said Pier and gestured Julianne and Kate to the stars.
 
+“I think I’ll wait for mum.” Julianne headed for the bed with arms slumped.
+
+“Come on! Juls! That’s our chance for the freedom. Remember? We wanted to visit so many places!” Said Kate.
+
+“No Katie, you wanted that. You wanted to leave, you wanted–not me. I want to just stay with mum.”
+
+Pier stood by the door and saw girls discussing. He didn’t want to interrupt, but he knew that starting mechanism on that side could have started it on playground as well. The guard could have seen that and come right where they were. They had to move faster.
+
+“Girls, can we move? Soon we will have a company.” Said Pier.
+
+Katie took next cruncher to entice Julianne out. Surprisingly, it worked. She really loved those cruncher thought Pier.
