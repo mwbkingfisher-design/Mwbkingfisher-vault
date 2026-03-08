@@ -166,8 +166,8 @@ Julianne took a small doll standing on another shelf, and saddled it on the duck
 
 “No Katie, you wanted that. You wanted to leave, you wanted–not me. I want to just stay with mum.”
 
-Pier stood by the door and saw girls discussing. He didn’t want to interrupt, but he knew that starting mechanism on that side could have started it on playground as well. The guard could have seen that and come right where they were. They had to move faster.
+Pier stood by the door and saw girls discussing. He didn’t want to interrupt, but he got a feeling that starting mechanism on that side could have started it on playground as well. The guard could have seen that and come right where they were. They had to move faster.
 
-“Girls, can we move? Soon we will have a company.” Said Pier.
+“Girls, can we move? Soon, we will have a company.” Said Pier.
 
-Katie took next cruncher to entice Julianne out. Surprisingly, it worked. She really loved those cruncher thought Pier.
+Katie took next cruncher to entice Julianne out. Surprisingly, it worked. She really loved those in the end.
